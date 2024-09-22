@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Richysilver017
 - 👀 I’m interested in 3d games and gaming
 
-- 📫 How to reach me twitter(@UnrealYeagerist)/ instagram(@rompanygaming)
+- 📫 How to reach me twitter(@theweb3master)/ instagram(@rompanygaming)
 - 
 
 <!---
